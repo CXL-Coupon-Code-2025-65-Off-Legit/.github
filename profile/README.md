@@ -1,4 +1,4 @@
-# CXL Coupon Code May 2025: 65% Off (Legit)
+# CXL Coupon Code June 2025: 65% Off (Legit)
 
 Are you hunting for a legitimate and working CXL coupon code? Well, you're in luck! We've teamed up with CXL to bring you an exclusive 65% off their annual plan. No tricks, just a real, working discount.
 
@@ -6,7 +6,7 @@ Are you hunting for a legitimate and working CXL coupon code? Well, you're in lu
 
 ---
 
-## Latest CXL Coupon Codes and Discounts May 2025:
+## Latest CXL Coupon Codes and Discounts June 2025:
 
 ### 65% Off CXL Annual Plan Coupon!
 Want to save big? Use this exclusive CXL coupon to get 65% off the CXL annual plan for 2024. Don't wait! This deal gets you access to 120+ online courses. The personal plan usually costs $289, but with our code, you’ll pay only $100 if you subscribe for a full year – plus, you get an extra month for free!
