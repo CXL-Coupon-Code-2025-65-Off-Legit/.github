@@ -25,6 +25,24 @@ If you're looking to train a whole team, this one’s for you! Get 60% off the C
 
 ---
 
+## Student and Non-Profit Discounts (10% OFF)
+
+If you're a student or part of a non-profit, CXL offers an exclusive **10% discount**. Simply verify your student or non-profit status with a **.edu** or **.org** email address to unlock savings on all courses. Combine this offer with other deals to maximize your savings. Take advantage of this great opportunity to boost your skills at a discounted rate.
+
+## Team and Enterprise Pricing (Up to 60% OFF)
+
+CXL's **team discounts** allow organizations to save **up to 60% off** on annual plans for six or more users. Pricing starts at **$7,499 per year** or **$625 per month**, giving you access to the full platform, including courses and certifications. Teams benefit from **personalized onboarding**, exclusive content, and ongoing support to help develop skills across your organization.
+
+## Plan Examples & Savings Breakdown
+
+For those interested in CXL's pricing structure, the **Annual Plan** costs **$1,199/year** (regularly **$3,468**), giving you **$2,269+** in savings. If you opt for the **Monthly Plan**, you'll pay **$346 per month**, totaling **$4,152** for the year. All plans come with a **30-day money-back guarantee**, so you can explore the platform risk-free.
+
+## Coupon Validity and Expiry
+
+Remember, all CXL coupon codes are valid **until June 30, 2025**. Be sure to grab your coupon before it expires to save **up to 65% off**. Don't forget to apply the code at checkout to unlock your discount. These offers are **time-sensitive**, so make sure you act before it's too late!
+
+---
+
 ## How To Redeem CXL Coupon Code (Step By Step):
 
 **1. Add Items to Your Cart:**  
